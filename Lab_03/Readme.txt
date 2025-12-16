@@ -1,5 +1,13 @@
 # Operating System Administration Basics Labwork
 
+
+🔗🔗🔗
+Video to the second Labwork
+VK🔗: https://vkvideo.ru/video-234221744_456239019
+Rutube🔗: https://rutube.ru/video/private/26c76087ae94fe0d4d31c1e3fc83018d/?p=9FZ5eVMLonbCcHrP_yXZBA
+🔗🔗🔗
+
+
 ## 📋 Project Information
 - **Lab no.:** 3
 - **Student:** Mani Eyvazi
