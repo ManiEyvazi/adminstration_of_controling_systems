@@ -1,8 +1,8 @@
 
 🔗🔗🔗
 Video to the sixteenth Labwork
-VK🔗: 
-Rutube🔗: 
+VK🔗: https://vkvideo.ru/video-234221744_456239020
+Rutube🔗: https://rutube.ru/video/private/f0d91791f971ec082b234cbcc856e47a/?p=m0hHVbGqPwkZnbbpngZmJA
 🔗🔗🔗
 
 
