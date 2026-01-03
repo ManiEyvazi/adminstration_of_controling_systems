@@ -28,4 +28,4 @@ Mani Eyvazi - Student of Physics and Mathematics faculty at Peoples' Friendship 
 *Last updated: [12/20/2025]*
 *Exact update time [23:09]*
 
-*© 2024 Российский университет дружбы народов*
+*© 2024 Российский университет дружбы народов*.
