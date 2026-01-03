@@ -39,4 +39,4 @@ Educational purposes - All work is part of academic curriculum at RUDN Universit
 *Last updated: [12/16/2025]*
 *Exact update time [04:12]*
 
-*© 2024 Российский университет дружбы народов*
+*© 2024 Российский университет дружбы народов*.
