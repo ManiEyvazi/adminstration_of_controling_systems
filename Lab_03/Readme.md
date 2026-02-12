@@ -2,7 +2,7 @@
 
 
 🔗🔗🔗
-Video to the second Labwork
+Video to the Labwork
 VK🔗: https://vkvideo.ru/video-234221744_456239019
 Rutube🔗: https://rutube.ru/video/private/26c76087ae94fe0d4d31c1e3fc83018d/?p=9FZ5eVMLonbCcHrP_yXZBA
 🔗🔗🔗
@@ -27,7 +27,7 @@ This repository contains laboratory work no.3
 Mani Eyvazi - Student of Physics and Mathematics faculty at Peoples' Friendship University of Russia, specializing in system administration and computer science fundamentals.
 
 ---
-*Last updated: [12/16/2025]*
-*Exact update time [23:09]*
+*Last updated: [02/12/2026]*
+*Exact update time [13:09]*
 
 *© 2024 Российский университет дружбы народов*
